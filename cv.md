@@ -1,4 +1,4 @@
-# Chekasov Nikita  
+# Chekasov Nikita  ![avatar](/avatar.jpg)
 
 ## Contacts for communication:
 
