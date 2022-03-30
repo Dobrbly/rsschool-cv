@@ -1,1 +1,1 @@
-# rsschool-cv
+https://Dobrbly.github.io/rsschool-cv/cv
